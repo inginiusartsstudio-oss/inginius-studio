@@ -29,4 +29,4 @@ https://www.youtube.com/@INGINIUsArtsStudio
 ## Support
 
 Email:
-support@inginiusstudio.com
+inginiusartsstudio@gmail.com
